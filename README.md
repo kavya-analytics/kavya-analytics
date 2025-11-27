@@ -25,7 +25,7 @@ I work full-time and am advancing my skills in analytics to solve business probl
 ## 📮 Get in Touch
 Feel free to connect or share insights!
 - Email: bkavya.kg@gmail.com
-- LinkedIn: ([https://linkedin.com](https://www.linkedin.com/public-profile/settings/?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BcivKmfftQZ2qtOPNExcP3A%3D%3D))
+- LinkedIn: www.linkedin.com/in/kavya-b-analytics
 
 ---
 
